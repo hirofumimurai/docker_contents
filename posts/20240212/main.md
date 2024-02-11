@@ -7,7 +7,7 @@ Copyright: (C) 2024 Hirofumi Murai
 
 Jehovah said snake ... you will be unclean for bad things.-Gen.3:14
 
-Jehovah God said to he serpent:" Because you have done this,you are the cursed one".-Gene.3:14
+Jehovah God said to the serpent:" Because you have done this,you are the cursed one".-Gene.3:14
 
 
 
