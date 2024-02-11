@@ -5,14 +5,14 @@ Copyright: (C) 2024 Hirofumi Murai
 
 ## Lern English and Bible
 
-I will translate Japanese scriputures into English.Below is the official text
+I will translate Japanese scriputures into English.
 
 エホバ神は蛇に言った。「あなたはこうしたことを行ったので・・・卑しいものとなる。」(創3:14)
 
 
-Jehovah said snake ... you will be unclean for bad things.-Gen.3:14
+My trans: Jehovah said snake ... you will be unclean for bad things.-Gen.3:14
 
-Jehovah God said to the serpent:" Because you have done this,you are the cursed one".-Gene.3:14
+Official: Jehovah God said to the serpent:" Because you have done this,you are the cursed one".-Gene.3:14
 
 
 
