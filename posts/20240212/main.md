@@ -7,6 +7,7 @@ Copyright: (C) 2024 Hirofumi Murai
 
 I will translate Japanese scriputures into English.Below is the official text
 
+エホバ神は蛇に言った。「あなたはこうしたことを行ったので・・・卑しいものとなる。」(創3:14)
 
 
 Jehovah said snake ... you will be unclean for bad things.-Gen.3:14
