@@ -1,0 +1,3 @@
+# readme2
+wget https://github.com/greymd/teip/releases/download/v2.3.0/teip-2.3.0.$(uname -m)-unknown-linux-musl.deb
+sudo apt install ./teip*.deb
