@@ -3,7 +3,11 @@ Keywords:
 Copyright: (C) 2024 Hirofumi Murai
 ---
 
-# Examining the Scripures Dialy
+## Lern English and Bible
+
+I will translate Japanese scriputures into English.Below is the official text
+
+
 
 Jehovah said snake ... you will be unclean for bad things.-Gen.3:14
 
