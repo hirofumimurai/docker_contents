@@ -19,6 +19,11 @@ Official: Becine unutatirs of Gos,as beloved children.-Eph.5:1
 
 ##  Today's Picuture
 
-This is the watch I bought when I started delivering newspapers.I've been using it for over 40 years.
+Shari-cho shari-gun ,Hokkaido 0994114 JAPAN
 
-![](IMG_2746.jpeg)
+This is a waterfall called Oshinkoshin Falls.
+![](IMG_0118.jpeg)
+
+
+It's full of drift ice.
+![](IMG_0119.jpeg)
