@@ -11,7 +11,7 @@ I will translate Japanese scriputures into English.
 
 My trans:Be imitator to your God ,because you are loved for his children. 
 
-Official: Becine unutatirs of Gos,as beloved children.-Eph.5:1
+Official: Become imitators of God,as beloved children.-Eph.5:1
 
 
 
