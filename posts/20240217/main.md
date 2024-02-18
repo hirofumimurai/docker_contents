@@ -7,8 +7,7 @@ Copyright: (C) 2024 Hirofumi Murai
 
 I will translate Japanese scriputures into English.
 
-エホバ神は蛇に言った。「あなたはこうしたことを行ったので・・・卑しいものとなる。」(創3:14)
-
+皆さんは子供として神に愛されているのですから、神に倣ってください。
 
 My trans:Be imitator to your God ,because you are loved for his children. 
 
